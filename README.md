@@ -1,1 +1,1 @@
-# MyProject
+Just Another Guy Doing His Computer Homework! :D
